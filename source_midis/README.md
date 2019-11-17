@@ -1,0 +1,4 @@
+As downloaded from
+https://web.archive.org/web/20061011192224/http://www.sankey.ws/harpsichord.html
+
+All my harpsichord recordings are Copyright © John Sankey, 2000, under the Berne convention in order to protect the right of all to continue to use them freely. Anyone may copy, link to, or distribute any of them as much as they wish as long as as long as this notice of copyright and permission to further copy is distributed with all copies. You are free to modify them as you wish for your personal use, but I require that solely my original unaltered files be posted or distributed to others. No one may restrict their further use as above in any way, by collection copyright or any other means. The courtesy of a site reference or credit is always appreciated.
